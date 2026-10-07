@@ -233,4 +233,4 @@ Call of Duty: Modern Warfare is available as a full free version with all featur
 Download Call of Duty: Modern Warfare now and embark on your next adventure in the world of action gaming! Enjoy the experience, and see you on the battlefield!
 
 ---
-**Last updated:** 2026-10-07 00:24:35 UTC
+**Last updated:** 2026-10-07 06:54:55 UTC
